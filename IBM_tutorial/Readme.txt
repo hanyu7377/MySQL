@@ -1,0 +1,1 @@
+Some exercies from IBM cerfitication
